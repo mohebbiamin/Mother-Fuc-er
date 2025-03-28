@@ -79,4 +79,4 @@
 - **تاریخ میلادی:** 28 مارس 2025 🌍
 
 **ساخته شده توسط:** امین محبی ✍️  
-**آیدی تلگرام:** [man_khodam_khodaam@](https://t.me/man_khodam_khodaam) 📩
+**آیدی تلگرام:** [Haghighat_Saraye_Jaha@](https://t.me/Haghighat_Saraye_Jahan) 📩
